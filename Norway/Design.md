@@ -1,0 +1,1 @@
+https://www.uib.no/en/kmd/111989/masters-programme-design#interview
